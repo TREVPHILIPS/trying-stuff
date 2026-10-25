@@ -19,7 +19,7 @@ $\color{#A6A1A1}\text{ ݂݂ ⎯　　𝗵𝗲𝗮𝘃𝘆 ㅤ۫　  𝗣𝗥𝗘
 $\color{#565959}\text{ ﹍ ◞ 　𝗟𝗲𝗹𝗮𝗻𝗱 𝗖𝗼𝘆𝗹𝗲 𝗸𝗶𝗻 𐦯  ㅤ۫　 ㅤ۫　   𓏼}$　
 $\color{#262626}\text{　   𓏼              ⌓               𝘪 𝘥𝘰 𝘯𝘰𝘵 𝘴𝘩𝘢𝘳𝘦 𝘭𝘦𝘭𝘢𝘯𝘥'𝘴 𝘳𝘢𝘤𝘪𝘴𝘵 𝘷𝘪𝘦𝘸𝘴          ⢷}$
 
-
+<img src="https://i.postimg.cc/6phSQcJt/Untitled179-20261025081048.png">
 
 
      
