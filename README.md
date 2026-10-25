@@ -1,4 +1,7 @@
-<img src="https://hits.sh/github.com/TREVPHILIPS/hits.svg?username=TREVPHILIPS&label=GOOD+COP&extraCount=3893&style=flat-square&color=262626&labelColor=565959"> 
+<div align ="center">
+   <img src="https://i.postimg.cc/P57zXvVP/Untitled179-20261025082039.png"height=20>  <img src="https://hits.sh/github.com/TREVPHILIPS/hits.svg?username=TREVPHILIPS&label=GOOD+COP&extraCount=3893&style=flat-square&color=262626&labelColor=565959"> <img src="https://i.postimg.cc/MHsf9ghS/Untitled179-20261025081942.png"height=20>
+
+<img src="https://i.postimg.cc/mg4WdhNq/Untitled179-20261025081428.png">
 
 
 $\color{#A6A1A1}\text{₊              𓏼               ㅤ۫　 ㅤ۫　 ㅤ۫　 𝗺𝗲𝘁𝗮𝗹𝗵𝗲𝗮𝗱 / 𝙖𝙣𝙖𝙧𝙘𝙝𝙞𝙨𝙩 ໒꒱}$
