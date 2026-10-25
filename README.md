@@ -1,4 +1,4 @@
-$\color{#9E9689}\text{　　　　　 ݂݂ ⎯　　txtxtxt　　➳　　txtxtxt
+$\color{#9E9689}\text{ ݂݂ ⎯　　txtxtxt　　➳　　txtxtxt
 
 　　　　　꒰♡៸៸៸៸꒱ ࣭　ㅤ𝆬✿॒　　txtxtxtxt　 ݂݂ ⌓꯭⌓}$
 
